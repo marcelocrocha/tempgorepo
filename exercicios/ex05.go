@@ -13,3 +13,12 @@
 // utilizando o declaradaor curto (short) para uma VARIÁVEL
 // com o IDENTIFICADOR "s".
 // b. imprima o valor de "s"
+
+feuhifhaors tfawres
+ba
+wert
+aerb
+by na
+erbtant
+e 
+tsrw
